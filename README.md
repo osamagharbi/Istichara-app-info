@@ -1,0 +1,1 @@
+# Istichara-app-info
